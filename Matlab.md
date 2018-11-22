@@ -16,7 +16,7 @@ Update us regarding your fee payment by sending picture/scan copy of bank receip
 
 ## Certification
 
-All participants will get Certificate from TechieNest Pvt. Ltd. in association with Aavriti’18 IIT Bombay <br>
+All participants will get Certificate from CyberTeam in association with Aavriti’18 IIT Bombay <br>
 ### Why AllinoneCyberteam ? <br>
 
     Vast experience of having conducted Big Outreach Workshop collaborating with over 300+ colleges in all over India including IIT Bombay, IIT Hyderabad, IIT Bhubaneswar, IIT Jodhpur, IIT Mandi, NIT Raipur, MNIT Jaipur, MANIT Bhopal, NIT Jalandhar, NIT Patna, NIT Srinagar, IIIT Kalyani, BITS Pilani and likewise.
